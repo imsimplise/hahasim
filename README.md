@@ -25,3 +25,6 @@ https://www.three.com.hk/3Care/chi/prepay/payonline1.jsp
 
 7. HahaSIM卡有效期多久？  
 激活后有效期1年，到期前最低充值10港币一次即可续期1年。
+
+8. 购买链接：https://k.youshop10.com/Fzi4w3LG 【长期有效】
+9. 客服：关注微信公众号【hahasim】，添加客服微信。
