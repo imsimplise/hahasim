@@ -1,6 +1,8 @@
 # hahasim
 HongKong SIM HahaSIM 10HKD for 1year.Buy it : https://k.youshop10.com/Fzi4w3LG
 
+HahaSIM是香港手机卡，电话号码区号为+085，可用于发送/接收短信、拨打/接听电话、蜂窝流量上网。
+
 #HahaSIM卡常见问题
 
 1. HahaSIM卡如何激活？  
